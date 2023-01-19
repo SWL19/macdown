@@ -1,4 +1,4 @@
-# Introduction
+# How to Promote an Instagram Post
 Making money on Instagram has never been easier. In fact, anyone can do it. All you need is a product to sell and knowledge on how to promote it. Here are the steps to promoting an Instagram post.
 
 # Steps
