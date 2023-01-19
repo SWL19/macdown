@@ -19,7 +19,7 @@ Making money on Instagram has never been easier. In fact, anyone can do it. All 
 
 ### 4. Switching Your Account to a Business Profile
 * Click on settings.
-* CLick "Switch to a Business Profile."
+* Click "Switch to a Business Profile."
 
 ### 5. Creating the Promotion
 * Click on the post you want to promote and click "Promote."
