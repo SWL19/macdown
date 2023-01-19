@@ -24,6 +24,8 @@ Making money on Instagram has never been easier. In fact, anyone can do it. All 
 ### 5. Creating the Promotion
 * Click on the post you want to promote and click "Promote."
 
+![Instagram Promotion] (InstagramPromo.png)
+
 ### 6. Setting a Goal
 * Choose one of the three goals that satisfy your post's needs:
 * More profile visits.
