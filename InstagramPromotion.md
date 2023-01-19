@@ -42,3 +42,5 @@ Making money on Instagram has never been easier. In fact, anyone can do it. All 
 ### 8. Setting a Budget and Reviewing
 * Drag the slider based on how much money you want to spend on promotions.
 * Once all the information is reviewed, click "Create Promotion."
+
+![promote-instagram-post-3](https://user-images.githubusercontent.com/122558984/213536789-9cab5e4e-cc5c-402c-8512-a6dcb93a019e.png)
